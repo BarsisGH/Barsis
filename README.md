@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Barsis63438
+- 👋 Hi, I’m @Barsis
 - 👀 I’m interested in hamsters and iPhones
 
 <!---
